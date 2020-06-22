@@ -3,5 +3,3 @@ Este repo es para explicar. porque es muy importante que entiendan bien como se 
 # Integrantes
 Carlos Speranza
 Speranza Carlos
-
-MirajdiasjaiodjoiajdiojsdoaijdoijogihioHGShiosdioijdpoj
